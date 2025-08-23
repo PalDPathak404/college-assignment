@@ -1,1 +1,1 @@
-omago moi sin moreshe
+omago moi sin moreshe  , what is ours
